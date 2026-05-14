@@ -1,4 +1,4 @@
-#  
+#  king legacy new Scripts offers the most advanced king legacy Script, with aimbot and auto-upgrade. Perfect for dominating any match.
 
 
 
